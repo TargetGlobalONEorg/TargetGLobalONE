@@ -1,8 +1,16 @@
-# Target Global One LTD 
+## Target Global One LTD
+
+#Engineering, Development, Global Partnership Services
+
+
+
+https://targetglobalone.com/
 England, Europe
-
-@https://targetglobalone.com/
-
 Company number 13699283
-D-U-N-S® Number:  228389267
-TargetGLobalONE - Engineering, Development, Global Partnership Services
+
+
+# Target GLobal ONE
+# D-U-N-S: 228389267
+
+https://twitter.com/TargetGlobalONE
+
